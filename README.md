@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning business growth and management 
 - 💞️ I’m looking to collaborate on business development and accelerations
 - 📫 How to reach me my email address is ejikemeannie@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ACE'S 
 - ⚡ Fun fact: ...
 
 <!---
